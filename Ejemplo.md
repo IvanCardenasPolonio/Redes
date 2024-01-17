@@ -1,7 +1,7 @@
 ## Los 5 Hombres Más Ricos del Mundo
 ---
 
-Buenas, el esta web nos sumergiremos en el apasionante universo de la riqueza global al explorar las vidas y logros de los cinco hombres más ricos del mundo. Esto nos llevará a través de las fortunas asombrosas y las historias de éxito que definen la élite financiera mundial. ¡Prepárense para un viaje fascinante mientras desglosamos los detalles de estas trayectorias extraordinarias y exploramos su impacto en el panorama económico global! 🌐💼💰
+Bienvenido, en esta web nos sumergiremos en el apasionante universo de la **riqueza** global al explorar las vidas y logros de **los cinco hombres más ricos del mundo**. Esto nos llevará a través de las fortunas asombrosas y las historias de éxito que definen la élite financiera mundial. ¡Prepárense para un viaje fascinante mientras desglosamos los detalles de estas trayectorias extraordinarias y exploramos su impacto en el panorama económico global! 🌐💼💰
 
 ---
 
